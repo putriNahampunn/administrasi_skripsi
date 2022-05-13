@@ -1,1 +1,0 @@
-# administrasi_skripsi
